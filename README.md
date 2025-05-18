@@ -7,4 +7,3 @@
 - no dni but i block/hide freely
 - ^ i dont int with ppl under 14 !! i'm sorry X-(
 - read more about me in my strawpage ! atabook always open for signs <3
-- inspo and copying is a-okay !! please ask before copying
