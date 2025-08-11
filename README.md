@@ -9,4 +9,4 @@
 - ^ i dont int with ppl under 14 !! i'm sorry X-(
 - inspo and copying is fine idgaf LOL just ask before copying<br>
 <br>
-i like to compliment people's ponies and strawpages !! please don't feel any pressure or obligation to reply or engage in convo with me !
+i like to compliment people's ponies and websites !! please don't feel any pressure or obligation to reply or engage in convo with me !
