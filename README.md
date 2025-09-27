@@ -2,7 +2,7 @@
 
 - KEKII/VALERIE
 - any/all prns
-- 17
+- 18
 - usually semiafk/offtab !! w2i & always c + h
 - ^ INT WITH ME !! <3 making new friends and acquaintances is my #1 goal on ponytown ! (˶ˆᗜˆ˵)
 - no dni but i block/hide freely
