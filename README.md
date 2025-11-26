@@ -10,3 +10,4 @@
 - patreon has ponytown info :-)<br>
 <br>
 i like to compliment people's ponies and websites !! please don't feel any pressure or obligation to reply or engage in convo with me !
+<br> redoing this Xp . . . will look better soon ! i promise !
